@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @shafiya3246
 - 👀 I’m interested in every thing
 - 🌱 I’m currently learning coading
-- 💞️ I’m looking to collaborate on instagram
+- 💞️ I’m looking to collaborate on whatsaap
 - 📫 How to reach me @shafiya
 - 😄 Pronouns: as u wish
 - ⚡ Fun fact: i am just trying my project
